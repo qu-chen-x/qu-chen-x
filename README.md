@@ -1,5 +1,6 @@
-### Hi there 👋
-
+### Hi there 👋 
+I'm Aimee. :blue_heart: <br>
+And I'm trying to find a new self here and hope I can grow with you all, thanks! :cherry_blossom: :cherry_blossom: :cherry_blossom:
 <!--
 **qu-chen-x/qu-chen-x** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
